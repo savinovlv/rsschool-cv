@@ -1,1 +1,1 @@
-# rsschool-cv
+https://savinovlv.github.io/rsschool-cv/cv
